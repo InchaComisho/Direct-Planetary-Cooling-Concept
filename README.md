@@ -64,7 +64,7 @@ This is both preventive and active cooling.
 	•	decreased heatwave-related deaths
 	•	lower land-surface feedback loops
 
-This is the only physically feasible direct-cooling method without heavy CO₂ emissions.
+This is a physically plausible proposed direct-cooling approach without heavy CO₂ emissions.
 
 ⸻
 
