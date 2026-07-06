@@ -2,6 +2,8 @@
 
 **Language:** English | [日本語版はこちら / Japanese Version](README_ja.md)
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 ## A Direct Surface-Radiation Heat Suppression Model Through Desert Cooling and Rapid Vegetation Recovery
 
 **Author:** Master / inchacomusho / InchaComisho  

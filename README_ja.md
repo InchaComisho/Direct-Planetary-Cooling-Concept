@@ -2,6 +2,8 @@
 
 **言語 / Language:** 日本語 | [English Version](README.md)
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 ## Direct Planetary Cooling Concept
 
 **砂漠冷却と高速植生回復による、地表放射熱の直接抑制モデル**
