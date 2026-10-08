@@ -282,24 +282,18 @@ CO₂は熱を閉じ込める。
 ### NOTE記事
 
 - 唯一の温暖化対策：地球直接冷却  
-  https://note.com/inchacomusho/n/n32f7295434aa
 
 - 唯一の温暖化対策・地球直接冷却：深海エアレーション × ミスト冷却が温暖化を止める唯一の安全な方法  
-  https://note.com/inchacomusho/n/n5ab9564c6617
 
 - 地球直接冷却モデル：腐葉土 × 微生物 × 多種雑草 × 気化熱 × 持続ミスト × 砂漠再生（完全統合モデル）  
-  https://note.com/inchacomusho/n/nfe290c6fca60
 
 ### 自然補完科学・人工叡智
 
 - 自然補完科学  
-  https://note.com/inchacomusho/n/nf9eabe973e38
 
 - 人工叡智（Artificial Wisdom）とは何か  
-  https://note.com/inchacomusho/n/n0849dfd12364
 
 - 和ノード人工叡智（Artificial Wisdom Node）  
-  https://note.com/inchacomusho/n/n9187db7b2709
 
 ---
 

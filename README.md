@@ -299,24 +299,18 @@ However, it is an important entry point toward Direct Planetary Cooling, Natural
 ### NOTE Articles
 
 - The Only Climate Countermeasure: Direct Planetary Cooling  
-  https://note.com/inchacomusho/n/n32f7295434aa
 
 - Direct Planetary Cooling: Deep-Ocean Aeration × Mist Cooling  
-  https://note.com/inchacomusho/n/n5ab9564c6617
 
 - Integrated Direct Planetary Cooling Model: Leaf Mold × Microorganisms × Diverse Weeds × Evaporative Cooling × Continuous Mist × Desert Regeneration  
-  https://note.com/inchacomusho/n/nfe290c6fca60
 
 ### Natural Complementation Science and Artificial Wisdom
 
 - Natural Complementary Science  
-  https://note.com/inchacomusho/n/nf9eabe973e38
 
 - What Is Artificial Wisdom?  
-  https://note.com/inchacomusho/n/n0849dfd12364
 
 - Artificial Wisdom Node / Wa-Node  
-  https://note.com/inchacomusho/n/n9187db7b2709
 
 ---
 
